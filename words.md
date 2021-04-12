@@ -154,3 +154,261 @@ Diary
 Dairy 
 Consul 
 Consulate 
+versatile 
+bite
+chase
+otherwise
+once
+although
+therefore
+nevertheless
+substantial 
+eventually outweigh
+all things considered, 
+turning to the other side of the argument
+on the other hand
+living / travelling overseas
+neighbourhood
+flea
+mill 
+watermill
+campaign
+queen
+steadily
+island 
+abundant
+affairs
+household
+monday
+tuesday
+wednesday
+thursday
+friday
+saturday
+sunday
+almond
+jewellery
+architecture
+stomach
+ache
+enthusiastic
+questionnaire 
+accommodation
+royal crescent
+educational science
+volunteer 
+voluntary organization
+rural primary school
+facilities for leisure and sports
+cater
+drama theatre
+video surveillance system
+insisted rein
+oppressive 
+caffeine 
+sea
+disease
+ramifications
+cute pet like a puppy or kitten
+blunt 
+nimble 
+herd
+inevitable
+cattle
+can be a huge boon
+Behind the scenes
+evident
+circle
+circumstances
+bait
+beverage
+compulsory
+facilities
+equipment
+atrocious 
+devastated
+dejected 
+flavors
+apparently
+knowledge
+therefore
+respectfully yours,
+dear madam / sir
+inevitable
+snuck in
+swallows 
+foreseeable 
+hence
+is gaining traction
+once upon a time
+hazard
+i insist on getting a refund
+respectfully yours
+Yours sincerely 
+Yours faithfully 
+i regret to inform you
+bought
+your representative
+itinerary
+emphasize 
+these days
+nowdays
+marriage
+coming
+young
+difficulties
+noticeable
+believe
+government
+apartments
+emphasize
+certainly 
+talented
+universities
+citizens
+from the get-go
+sure
+hear
+roar
+bare
+paw
+your
+enouth
+flaws
+shore
+which
+bear with me
+stare
+blew
+pears
+wear
+chilly
+leased
+sight
+dear
+flour 
+knead
+chews
+desert
+dessert
+assistance
+through
+you are
+mourning
+accept
+maid
+flare
+banned
+alter
+flair
+coarse
+bred
+except
+peace
+soar
+saw sore
+scent
+discrete
+fare
+feat
+weak
+whether
+fourth
+groan-
+waist
+genes
+heal
+rein
+there is a knot
+principal board
+there is snot 
+powder
+limestone
+clay
+grinder
+neighbor
+greenhouse
+emission
+gas
+bygone
+promotion prospects
+learn to cope with foreign customs and food
+growth
+the benefits in term of personal growth outweigh any negatives
+essay
+nowadays
+turning to the other side of the argument
+all things considered
+secondly
+overseas
+straightforward
+length
+attractive
+cruel and vicious
+get acquaintance
+species
+prosperous
+bought
+sewage
+rainfall
+lying
+thought
+northwards
+precise
+deficit
+Mediterranean
+daunting
+experience
+gain
+attempt
+without
+scaffolding
+science
+scientist
+adversaries
+deem necessary
+foothold
+eternity and bliss
+forge
+surprisingly
+excitement
+methodology
+feasible
+methodology
+advisory
+excellent
+perhaps
+prominence
+Contracted words
+emphasis
+could be brought closer
+children’s leisure
+gist
+survival
+punctual
+thus 
+as a consequence
+foregoing
+possession
+bureaucracy
+further
+disease
+personally
+principals
+participate
+believe
+society
+mechanism
+Politicians
+difficulties
+organising
+noticeable
+coming
+exciting
+hours
+principles
+independent
+helpful
+although
+thought
+cought
